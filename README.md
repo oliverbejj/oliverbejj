@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bejjanioliver@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pO7FXp0eehXHLS6RLYunel-Tps9VkE0z/view?usp=sharing](https://drive.google.com/file/d/1pO7FXp0eehXHLS6RLYunel-Tps9VkE0z/view?usp=sharing)
+- 📄 Know about my experiences [link](https://drive.google.com/file/d/1pNHtq0b_Evy51MmqZ1AUs1mTYBR-Ze-A/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
