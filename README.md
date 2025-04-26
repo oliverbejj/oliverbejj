@@ -5,9 +5,9 @@
 
 - 📫 How to reach me **bejjanioliver@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1B6RbephUs-rC947tfjiGtgV0lITkllOb/view?usp=sharing](https://drive.google.com/file/d/1B6RbephUs-rC947tfjiGtgV0lITkllOb/view?usp=sharing)
+- 📄 Know about my [experiences](https://drive.google.com/file/d/1B6RbephUs-rC947tfjiGtgV0lITkllOb/view?usp=sharing)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: [here](https://www.linkedin.com/in/bejjanioliver/)</h3>
 <p align="left">
 </p>
 
