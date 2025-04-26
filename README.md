@@ -7,7 +7,7 @@
 
 - 📄 Know about my [experiences](https://drive.google.com/file/d/1B6RbephUs-rC947tfjiGtgV0lITkllOb/view?usp=sharing)
 
-<h3 align="left">Connect with me: [here](https://www.linkedin.com/in/bejjanioliver/)</h3>
+- Connect with me: [here](https://www.linkedin.com/in/bejjanioliver/)
 <p align="left">
 </p>
 
