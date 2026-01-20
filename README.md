@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Oliver</h1>
 <h3 align="center">A passionate Computer Science Student from Lebanon living in Montreal/Canada</h3>
 
-- 🔭 I’m currently working on **building a personal project with AI**
+- 🔭 I’m currently working on **building a personal project and potential startup with AI and cooking**
 
 - 📫 How to reach me **bejjanioliver@gmail.com**
 
